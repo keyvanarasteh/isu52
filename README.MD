@@ -12,7 +12,7 @@
 
 [My Academic Profile](https://myo.istinye.edu.tr/tr/kadro/13783)
 
-![Keyvan Arasteh](https://myisu.istinye.edu.tr/sites/default/files/pictures/2022-02/keyvan.abbasabad.jpg)
+![Keyvan Arasteh](https://www.iskultur.com.tr/webp/2013/12/Mustafa-Kemal-Ataturk-1.jpg)
 
 benim projem hakkinda
 
